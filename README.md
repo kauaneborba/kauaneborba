@@ -7,5 +7,9 @@
 - 📫 moro no rio da paz em cascavel pr. 
 -tenho 15 anos 
 -nasci em santa catarina
+-moro com meu pai a 2 anos,minha mãe me abandonou.
 
 
+
+
+-nasci no dia 06/02/2007
